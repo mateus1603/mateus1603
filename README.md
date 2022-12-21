@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 A little about myself:
 🇧🇷 Born in Brasil <br>📖Electrical Engineering Student<br>⚡Neoenergia Intern<br>👨‍💻Programming Enthusiast<br>🔎Looking for new challenges<br>
 
 
